@@ -5,3 +5,6 @@ I am basically a Computer Engineer and Doctorate with 17+ years experience as Pr
 If you're a school or college student and working professional who wants to learn Computer Technologies, to get a job and to become a successful entrepreneur, subscribe to my channel. My channel publishes videos that focus on upskilling with trending computer technologies, Career guidance and entrepreneurship. 
 
 I am making use of YouTube and it is one of the best platform to explore my ideas with you all subscribers. And I promise to make more interesting content as we go ahead. To learn more about job opportunities using computer technologies, subscribe to our channel to stay informed.
+
+Where you can find out me:
+https://www.linkedin.com/in/drtmushacoder
